@@ -1,1 +1,0 @@
-# atulvermagit.github.io
